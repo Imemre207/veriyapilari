@@ -1,0 +1,1 @@
+İstanbul Üniversitesinde görmüş olduğum veri yapıları dersinin ödevidir
